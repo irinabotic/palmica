@@ -1,0 +1,2 @@
+# palmica
+sta god hoces
